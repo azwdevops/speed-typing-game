@@ -1,1 +1,1 @@
-![alt text](<speed typing-1.png>)
+![alt text](<speed typing.png>)
